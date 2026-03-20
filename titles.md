@@ -1,1 +1,1 @@
-<contents of B>
+<contents of G>
